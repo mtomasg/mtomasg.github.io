@@ -47,7 +47,7 @@ Per fer una aportació o resoldre dubtes, pots escriure a:
 
 ---
 
-Gràcies per ajudar-nos a fer realitat aquest conte! 📚✨
+Moltes gràcies per ajudar-nos a fer realitat aquest conte! 📚✨
 
 _Tot el suport suma. Compartir aquest projecte també és una gran ajuda!_
 
